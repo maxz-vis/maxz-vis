@@ -5,6 +5,7 @@
 - 📫 How to reach me - ponytown ! tiktok? _sxcttiee 
 - 😄 Pronouns: they/he!
 - ⚡ Fun fact: idk :P
+- HERE IS MYYY PRONOUNCE CC IF YALL WANNA ADD ME https://pronouns.cc/@MAX1MUS 🧡💥
 
 <!---
 maxz-vis/maxz-vis is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
